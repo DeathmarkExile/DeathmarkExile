@@ -4,7 +4,7 @@
 - | Also interested in Music Production!
 - 🌱 I’m currently learning C++, Python, and Java
 - | Hoping to Learn MORE!!!
-- 💞️ I’m looking to collaborate on Few Projetcs
+- 💞️ I’m looking to collaborate on a Few Projetcs
 - | For Now
 - 📫 You can reach out to me on my Twitter (twitter.com/DeathmarkExile), slide a DM and we're in buisness!
 - | Expect a Reply in 24 hours or less
